@@ -1,0 +1,2 @@
+![archi](/tiktak.jpg)
+
